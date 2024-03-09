@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @sarim-rasheed
+- 👀 I’m interested in implement such a soltution which resolve the needs of modern world.
+- 🌱 I’m currently working in industry as well as learning to enhance and upgrade my skills.
+- 💞️ I’m looking to collaborate with business to contibute my efforts into their growth.
+- 📫 Contact me on mail: m.sarimrasheed@outlook.com
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ...
